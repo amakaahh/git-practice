@@ -1,6 +1,11 @@
 # git-practice
 gfgfdrtdudtuut7dt
-![](./images/Whisk_89296fd876.jpg)
-ghgfhft
-gvgvghchf
-ghhfffyuu
+![](./images/e.jpg)
+- kachi is a girl.ufffueud 
+- ueurygdvjdbrf 
+![](./images/d.jpg)
+- fhbevhjfvbh
+- frwfjmvnvbv
+![](./images/c.jpg)
+gghnhjjj
+ytfffffffff#
